@@ -10,5 +10,5 @@ un blog vacilao de cr7 🤍
 * juventus
 * al nassar
 
-cris es patrimonio historico del futbol, y el que diga lo contrario es daniel guerra
+cris es patrimonio historico del futbol, y el que diga lo contrario es daniel guerra y brutongo novoa
 
